@@ -2,4 +2,4 @@ ummmm hi
 update
 
 
-![](./media/image32.png)
+![](./image32.png)
