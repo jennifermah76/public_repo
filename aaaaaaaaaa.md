@@ -1,1 +1,1 @@
-e \$wwwww)/kl  asfdddd \$(SDKLFJSK) 
+e \\$wwwww)/kl  asfdddd \$(SDKLFJSK) 
