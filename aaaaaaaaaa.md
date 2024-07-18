@@ -1,1 +1,1 @@
-\$ MONEY \$
+e \$wwwww)/kl  asfdddd \$(SDKLFJSK) 
